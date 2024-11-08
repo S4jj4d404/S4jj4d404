@@ -1,6 +1,6 @@
 ![MasterHead](https://github.com/S4jj4d404/S4jj4d404/blob/main/20241029_032756.png)
 
-Hey there! it’s me Sajjad Hosen, from Dhaka. 
+### Hey there! it’s me Sajjad Hosen. 
 
 
 ## 🌐 Socials:
